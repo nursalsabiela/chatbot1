@@ -1,7 +1,7 @@
 Shop information
 
 Baker:
-Mr. A Kamarudin (Exquisite 3-star Michelin star bakery chef)
+Mr. A Kamarudin Nin (Exquisite 3-star Michelin star bakery chef)
 
 Time open:
 Everyday from 9am to 6pm (Except thursday)
